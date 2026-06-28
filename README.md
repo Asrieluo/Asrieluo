@@ -1,5 +1,4 @@
-dont believe anything other people say about me untill i make a statement about it
-this wil stay as my readme for a couple days
+
 
 <img src="https://64.media.tumblr.com/6dd8ee275677db5a31411418f10b188a/50a7874f7e7f7bef-79/s400x600/d0ec542d4c37df5971364522bf3714dcdfc07ad8.gifv" width="250" align="left" hspace="25"/>
 
