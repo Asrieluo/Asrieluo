@@ -1,7 +1,7 @@
 <div align="center">
  
 <img src="https://files.catbox.moe/bslkjy.jpg" width="680" height="40" alt="Noelle">
-<img src="https://files.catbox.moe/lkthq5.jpg" width="450" height="300" alt="Noelle"> <img src="https://files.catbox.moe/w0l3f9.jpg" width="450" height="300" alt="Noelle">
+<img src="https://files.catbox.moe/lkthq5.jpg" width="350" height="220" alt="Noelle"> <img src="https://files.catbox.moe/w0l3f9.jpg" width="350" height="220" alt="Noelle">
 
 　
 
