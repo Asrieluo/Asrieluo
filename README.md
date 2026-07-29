@@ -1,6 +1,7 @@
 responding to the document imperialfires / veskar made on me ! https://docs.google.com/document/d/1kTVVLF9UH5NzKVGCymOz6xDHKq5IeKxoaIcFm9lIlTg/edit?usp=drivesdk
 I seriously don't know what to tell you veskar, the new document you made is just full of bs just like everyone else told me, repeating all of the stuff I already debunked in my response doc
 you obviously "didn't read allat", just like what u said in the first document u said when I sent you a whole paragraph explaining the situation, "I can't waste my time reading allat"
+it's pathetic, disrespectful even, how your still trying to prove your point so badly even after a bunch of people in docks tried to give u and ur friends a reality check
 if you really wanna end all of this, and stay on good terms, then don't be a pussy for once and actually respond to my dms
 
 
