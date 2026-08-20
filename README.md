@@ -1,3 +1,5 @@
+[PLEASE READ THIS DOCUMENT.](https://docs.google.com/document/d/1kTVVLF9UH5NzKVGCymOz6xDHKq5IeKxoaIcFm9lIlTg/edit?usp=drivesdk)
+
 <img align="left" width="200" src="https://github.com/user-attachments/assets/67d60359-fdf6-46e2-bc1b-783fadc2fc77"> ㅤㅤㅤㅤㅤㅤㅤ
 
 ![](https://komarev.com/ghpvc/?username=asrieluo&color=EF722C&style=plastic&label=HEATㅤㅤ++++++++++++++++++++++++++++++ㅤㅤABNORMAL&base=100)
