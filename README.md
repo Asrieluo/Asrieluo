@@ -1,17 +1,1 @@
-[PLEASE READ THIS DOCUMENT.](https://docs.google.com/document/d/1DUUy7aYDtqK0Jeb0IaFqBlirZ4VjxE7dND_dHd0Lb5A/edit?usp=drivesdk)
-
-<img align="left" width="200" src="https://github.com/user-attachments/assets/67d60359-fdf6-46e2-bc1b-783fadc2fc77"> ㅤㅤㅤㅤㅤㅤㅤ
-
-![](https://komarev.com/ghpvc/?username=asrieluo&color=EF722C&style=plastic&label=HEATㅤㅤ++++++++++++++++++++++++++++++ㅤㅤABNORMAL&base=100)
-
-<h6 style="color: #447878;">dont ㅤtake ㅤinspoㅤㅤoff ㅤmy ㅤponies $${\color{#EF722C}⁠＾⁠3⁠＾⁠♪}$$ </h6>
-
-<h6 style="color: #447878;">c+h ㅤencouraged ㅤfreelyㅤㅤinteract ㅤalways ㅤ</h6>
-ㅤ
-ㅤ
-ㅤ
-<div align="left">
-  <h6 style="color: #447878;">ㅤㅤㅤsignㅤmyㅤatabook $${\color{#EF722C}♡}$$ </h6>
-
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[atabook](https://goodboi.atabook.org/)ㅤㅤ ㅤㅤㅤ[rentry](https://rentry.co/asrieluo)
+<img width="512" height="456" alt="Image" src="https://github.com/user-attachments/assets/e6cc4a21-7d19-4560-80c4-8fb24614e9ce" />
