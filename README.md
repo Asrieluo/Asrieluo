@@ -6,3 +6,6 @@ Screenshot from my friend apparently it was because I got blacklisted in the sum
 <img width="1604" height="720" alt="Image" src="https://github.com/user-attachments/assets/baa801f4-5a39-4f25-b480-57d158e92049" />
 
 <img width="1604" height="720" alt="Image" src="https://github.com/user-attachments/assets/146941c7-8372-4581-be40-41f6f4b64d01" />
+
+
+https://docs.google.com/document/d/1o_fls11K4j3EC7iLGpSab5qyGbIMWlzOlPUlq4oOF0U/edit?usp=drivesdk
