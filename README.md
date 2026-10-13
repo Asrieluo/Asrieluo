@@ -2,7 +2,7 @@
 ㅤ
 
 <div align="center">
-<img width="400" height="200" alt="Image" src="https://github.com/user-attachments/assets/bf8e48e7-121c-436c-bcca-f3bb2f05efcb" />
+<img width="350" height="350" alt="Image" src="https://files.catbox.moe/m1z0r8.png" />
 
 <details>
   <summary> 
