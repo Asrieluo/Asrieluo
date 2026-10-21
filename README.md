@@ -15,7 +15,7 @@ $\color{#e4fcdf}{\textsf{  /  her  ✧}}\qquad$
 
 
 
-<img width="20" height="20" alt="tumblr_d48e25311da1887abe1c330e5bc16f76_a43e6d48_75" src="https://github.com/user-attachments/assets/ab239b54-4ea3-4281-b52f-616df5f0e860" /> $\color{#e4fcdf}{\textsf{ㅤ‧  ˚}}\qquad$ [ata](https://goodboi.atabook.org/) [rentry](https://rentry.co/fujomikeu) $\color{#b2fee4}{\textsf{◞︶ᐩ}}\qquad$ [main](https://github.com/Ghost-Bakery) <img width="30" height="30" alt="tumblr_888ceafee5ee3bc5bfa603c55971d64b_323cd383_75" src="https://github.com/user-attachments/assets/ef906a35-8741-4a1d-9b96-8679fcf6e0f4" /> 
+<img width="20" height="20" alt="tumblr_d48e25311da1887abe1c330e5bc16f76_a43e6d48_75" src="https://github.com/user-attachments/assets/ab239b54-4ea3-4281-b52f-616df5f0e860" /> $\color{#e4fcdf}{\textsf{ㅤ‧  ˚}}\qquad$ [ata](https://goodboi.atabook.org/) [fluffle](https://fluffle.cc/oml) $\color{#b2fee4}{\textsf{◞︶ᐩ}}\qquad$ [document](https://docs.google.com/document/d/1o_fls11K4j3EC7iLGpSab5qyGbIMWlzOlPUlq4oOF0U/edit?usp=drivesdk) <img width="30" height="30" alt="tumblr_888ceafee5ee3bc5bfa603c55971d64b_323cd383_75" src="https://github.com/user-attachments/assets/ef906a35-8741-4a1d-9b96-8679fcf6e0f4" /> 
 
 
 <br>
