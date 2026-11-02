@@ -1,4 +1,4 @@
-[RESPONSEDOCSTOPMENTIONINGIT click me](https://docs.google.com/document/d/1o_fls11K4j3EC7iLGpSab5qyGbIMWlzOlPUlq4oOF0U/edit?usp=drivesdk)
+[document](https://docs.google.com/document/d/1o_fls11K4j3EC7iLGpSab5qyGbIMWlzOlPUlq4oOF0U/edit?usp=drivesdk)
 
 <img src="https://64.media.tumblr.com/6dd8ee275677db5a31411418f10b188a/50a7874f7e7f7bef-79/s400x600/d0ec542d4c37df5971364522bf3714dcdfc07ad8.gifv" width="200" align="left" hspace="25"/>
 
